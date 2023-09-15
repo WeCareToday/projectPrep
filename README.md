@@ -94,7 +94,7 @@ Github Kanban Boards
 
 Presentation Deck
 Link: 
-https://docs.google.com/presentation/d/1jICCxfWfVSRFARb3hCIAUvja7BZSCdGxsP1QaqmVoKs/edit?usp=sharing
+https://1drv.ms/p/s!Avbai6QeODWTgooU-WIotfvLDMSfoQ?e=9dLhxP
 
 
 Date:
